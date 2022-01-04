@@ -1,1 +1,1 @@
-https://debank.com/profile/0xf0ce30017221c20bb639da125767ca9a33230bf6
+@ossdao-org•AIRDROP-0xF0CE30017221C20Bb639da125767ca9A33230bf6
